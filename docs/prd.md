@@ -3,3 +3,11 @@ https://www.msdmanuals.cn/home/children-s-health-issues/child-neglect-and-abuse/
 https://ispcan.org/
 
 https://www.who.int/zh/news-room/fact-sheets/detail/child-maltreatment
+
+
+https://pubmed.ncbi.nlm.nih.gov/36439673/
+
+
+ 没有免费资源
+
+ 
